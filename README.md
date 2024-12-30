@@ -2,7 +2,7 @@
 - 👀 estou interessado em estudar 
 - 🌱 atualmente estou estudando 
 - 💞️ estou procurando pessoas para conversar com migo 
-- 📫 How to reach me send me a message on "x"
+- 📫 How to reach me send me a message on TWITTER 
  
 - 
 
