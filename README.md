@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @David adrano Ferrari dos Santos 
-- 👀 I’m interested in people sex
-- 🌱 I’m currently learning sexo 
+- 👀 I’m intereste
+- 🌱 I’m currently learning study 
 - 💞️ I’m looking to collaborate why bring with me 
 - 📫 How to reach me send me a message on "x"
 - 😄 Fun fact: I love sucking cum pussy 
